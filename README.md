@@ -1,5 +1,5 @@
 > <i>Basic DNI (proshippers, AI users, etc)... DNI. <b>If you do not know me, please do not cuddle me. Booping and sitting by me is fine, though! Thanks.<b></i>
-<img src="https://file.garden/aA_5BlelMxIUBG_x/tumblr_1e9b0342e8d3b218d3c80da39c702433_ff83a180_540.jpg" align="left" style="width: 350px;">
+<img src="https://f2.toyhou.se/file/f2-toyhou-se/images/112592981_NsUFh0DYl51MipI.gif" align="left" style="width: 350px;">
 <br> 
  <p align="center">
 <img src="https://file.garden/aA_5BlelMxIUBG_x/df7ax1s-a2f17571-8cca-48dc-8047-ecf07e50b820.gif">
