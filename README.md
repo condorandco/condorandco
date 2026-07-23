@@ -5,7 +5,7 @@
 <img src="https://file.garden/Z2zxOAocHECBs1sP/Nero%20Gif.gif" height="200px">
 
 
-<h3 align="center"><b>Cassidy / Leon / Nero ☆ He/Him ☆ 18 (July 6)</b></h3>
+<h3 align="center"><b>Cassidy / Leon / Nero ☆ He/Him ☆ 19 (July 6) ☆ Sys / Plural</b></h3>
 
  </p>
   
