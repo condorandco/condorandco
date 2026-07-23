@@ -11,6 +11,7 @@
   
 <p align="center"> <i>I tend to be off-tab, but always feel free to whisper!! :] (It also helps when I crash lol)</p> 
  <p align="center">I am often with a friend or with my bf (who is often matching with me), whether I'm with them or not doesn't matter, you can always interact!</p>
+ <p align="center">I am an OSDD system, many of us make pony avatars. Many are fictives, so please be respectful of that, interact how you normally would!</p>
  <p align="center"> I am an artist, and I do take commissions, DM me on any social abt it (especially Toyhouse and Tiktok). I don't draw ponies very much, I specialize in anthros and humanoids, but I can always try!</i></p>
  
 
